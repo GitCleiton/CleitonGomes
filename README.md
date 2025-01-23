@@ -1,7 +1,8 @@
 # CleitonGomes
 Aprendendo tudo sobre Git/Github
 
-<img width="410" alt="image" src="https://github.com/user-attachments/assets/154ebd82-bb65-4ae0-80d9-a8836f0f35fb" />
+![image](https://github.com/user-attachments/assets/03a425ff-06eb-45aa-a9b2-6cfac16df092)
+
 
 
 
