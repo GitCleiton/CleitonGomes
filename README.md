@@ -21,12 +21,15 @@ MODULO - 2
 
 ![image](https://github.com/user-attachments/assets/73f749e2-e631-4895-a9f2-0ab2aa06621e)
 
+![image](https://github.com/user-attachments/assets/e0d51cf5-7e53-4701-aa3e-1ef64d0719b1)
+
+
 DOCUMENTAÇÃO PARA ESTUDAR E SE APROFUNDAR NO ASSUNTO
 
 MS-4004:https://learn.microsoft.com/pt-br/users/me/achievements?WT.mc_id=ilt_partner_webpage_wwl&ocid=356989&redeem=5R86MD 
 MS-4005: https://learn.microsoft.com/pt-br/users/me/achievements?WT.mc_id=ilt_partner_webpage_wwl&ocid=356989&redeem=QYNJL3 
 MS-4008: https://learn.microsoft.com/pt-br/users/me/achievements?WT.mc_id=ilt_partner_webpage_wwl&ocid=356989&redeem=7DZV4P
 
-https://kasolutiontec-my.sharepoint.com/:b:/g/personal/brendaa%20kasolution%20com%20br/EW3Cm03%20m9XOlr9tQ1%20-XpkBgtH-RWnJTN%20OgsDRM7FxFg?e=lwNk79
+https://kasolutiontec-my.sharepoint.com/:b:/g/personal/brendaa kasolution com br/EW3Cm0e M9xOLR9tQ1 -XpkBgtH-RWnJTN OgsDRM7FxFg?e=lwNk79
 
 ![image](https://github.com/user-attachments/assets/2376f7d0-9310-41d5-893d-45c937f1f369)
