@@ -28,6 +28,11 @@ MODULO - 2
 
 ![image](https://github.com/user-attachments/assets/048e5e36-98e5-40a9-bb16-79b77e34ae01)
 
+MODULO - 3
+
+![image](https://github.com/user-attachments/assets/54327ea9-ff7c-45d8-a8d0-41522aee2109)
+
+
 **PERGUNTAS E RESPOSTAS**
 
 ![image](https://github.com/user-attachments/assets/6820db76-8af4-4398-a220-e2d2eb6d9a13)
@@ -38,9 +43,7 @@ MODULO - 2
 
 ![image](https://github.com/user-attachments/assets/a56ec026-c37f-4039-9277-8751c347c5b2)
 
-MODULO - 3
 
-![image](https://github.com/user-attachments/assets/54327ea9-ff7c-45d8-a8d0-41522aee2109)
 
 DOCUMENTAÇÃO PARA ESTUDAR E SE APROFUNDAR NO ASSUNTO
 
