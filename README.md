@@ -32,6 +32,17 @@ MODULO - 3
 
 ![image](https://github.com/user-attachments/assets/54327ea9-ff7c-45d8-a8d0-41522aee2109)
 
+![image](https://github.com/user-attachments/assets/7cb958db-ea78-4374-b627-a69c5f94f672)
+
+![image](https://github.com/user-attachments/assets/cd6a5dcb-6b20-42f1-a9e8-eb927698256f)
+
+![image](https://github.com/user-attachments/assets/a45df706-3936-431a-a507-855b28aab203)
+
+PAREI NA APRESENTAÇÃO NO MINUTO - 05:21:00
+
+
+
+
 
 **PERGUNTAS E RESPOSTAS**
 
