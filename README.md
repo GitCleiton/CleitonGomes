@@ -15,6 +15,7 @@ Aprendendo a utilizar o Copilot no Microsoft 365
 ![image](https://github.com/user-attachments/assets/36c6f328-3e44-4954-854f-89479c43e21d)
 
 MODULO - 2
+
 ![image](https://github.com/user-attachments/assets/9ee64cc4-9759-47ca-a4d7-acdba00a28ee)
 
 ![image](https://github.com/user-attachments/assets/c84b20d0-a233-4d3e-8288-79961b0d3544)
@@ -23,6 +24,23 @@ MODULO - 2
 
 ![image](https://github.com/user-attachments/assets/e0d51cf5-7e53-4701-aa3e-1ef64d0719b1)
 
+28/01 - CONTINUAÇÃO
+
+![image](https://github.com/user-attachments/assets/048e5e36-98e5-40a9-bb16-79b77e34ae01)
+
+**PERGUNTAS E RESPOSTAS**
+
+![image](https://github.com/user-attachments/assets/6820db76-8af4-4398-a220-e2d2eb6d9a13)
+
+![image](https://github.com/user-attachments/assets/a0aa6979-e6cc-4d37-bd0a-66d2eceebe6f)
+
+![image](https://github.com/user-attachments/assets/105121ef-beaa-4420-8554-07dd7ab2eaa7)
+
+![image](https://github.com/user-attachments/assets/a56ec026-c37f-4039-9277-8751c347c5b2)
+
+MODULO - 3
+
+![image](https://github.com/user-attachments/assets/54327ea9-ff7c-45d8-a8d0-41522aee2109)
 
 DOCUMENTAÇÃO PARA ESTUDAR E SE APROFUNDAR NO ASSUNTO
 
