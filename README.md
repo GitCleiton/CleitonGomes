@@ -112,6 +112,12 @@ MODULO - 3
 
 
 
+PAREI NO MINUTO - 06:57:30
+
+MODULO - 4
+
+![image](https://github.com/user-attachments/assets/345a6134-c5c1-4bf2-a8c2-66334d156ac0)
+
 
 
 **PERGUNTAS E RESPOSTAS**
@@ -143,6 +149,9 @@ MODULO - 3
 ![image](https://github.com/user-attachments/assets/4dc62c85-7367-4e15-abf9-03e2c9f76261)
 
 ![image](https://github.com/user-attachments/assets/ece69712-daaa-4ed6-bdb2-27f4e4c57847)
+
+
+
 
 
 
